@@ -248,19 +248,6 @@ These form the non-negotiable baseline of daily spiritual protection. Recite eve
 - **Zaad Al-Ma'ad** by **Ibn Al-Qayyim** — Prophetic medicine.
 - **Musnad Imam Ahmad** — Additional authentic narrations.
 
----
-
-## 🎧 Audio Resources
-
-Listen to authentic Ruqyah recitations for continuous protection:
-
-[**📁 Access Ruqyah Audio Files**]()
-
-**Recommended for:**
-- Daily listening during morning/evening Adhkar
-- Playing softly during sleep
-- Background recitation during treatment
-- Sharing with family for collective benefit
 
 ---
 
